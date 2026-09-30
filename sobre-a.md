@@ -1,0 +1,1 @@
+Meu nome é Gabriel Passarinho, sou estudante de TSI e tenho 19 anos. Trabalho na JBS Foods e gosto de jogos onlines
